@@ -14,6 +14,7 @@ First contributions updated!!!
 - Vipul is here
 - [Deepesh Baid](https://github.com/deepeshbaid) was here :wink:
 - Divyang is here
+- Sup is here
 - [Pratyum](https://github.com/pratyum) is here 
 - [Sneha](https://github.com/sneha-bamba) is here
 - [Sahaj](https://github.com/sahaj-evens) had also come here
